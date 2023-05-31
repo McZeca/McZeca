@@ -2,7 +2,7 @@
 - 👀 I’m interested in gajas por favor
 - 🌱 I’m currently learning como fazer o pino sem ajuda
 - 💞️ I’m looking to collaborate on ao ao chamem a policia (ou aspen)
-- 📫 How to reach me manda dm lol
+- 📫 How to reach me só se fores aquela novinha gostosa
 
 <!---
 McZeca/McZeca is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
